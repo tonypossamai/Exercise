@@ -1,19 +1,22 @@
 Ingredients For the recipe Victoria Sponge Cake
 
 For the Cake:
-225 g	Butter or Margarine (8 oz)
-225 g	Caster Sugar (8 oz)
-Medium Eggs x 4
-225 g	Self-Raising Flour (8 oz)
-3 ml	Dr. Oetker Madagascan Vanilla Extract (2-3 drops)
-For the Icing:
-75 g	Unsalted Butter (3 oz)
-175 g	Icing Sugar (6 oz) plus extra for dusting
-3 ml	Dr. Oetker Madagascan Vanilla Extract (2-3 drops)
-about 30 ml	Milk or warm water (2 tbsp)
-60 g	Strawberry Jam (4 tbsp)
+- 225 g	Butter or Margarine (8 oz)
+- 225 g	Caster Sugar (8 oz)
+- Medium Eggs x 4
+- 225 g	Self-Raising Flour (8 oz)
+- 3 ml	Dr. Oetker Madagascan Vanilla Extract (2-3 drops)
 
-Preparation
+For the Icing:
+- 75 g	Unsalted Butter (3 oz)
+- 175 g	Icing Sugar (6 oz) plus extra for dusting
+- 3 ml	Dr. Oetker Madagascan Vanilla Extract (2-3 drops)
+- about 30 ml	Milk or warm water (2 tbsp)
+- 60 g	Strawberry Jam (4 tbsp)
+
+# CHOCOLATE CHOCOLATE CHOCOLATE
+
+### Preparation
 
 1
 Victoria Sponge Cake
