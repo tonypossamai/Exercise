@@ -11,12 +11,12 @@ For the Icing:
 175 g	Icing Sugar (6 oz) plus extra for dusting
 3 ml	Dr. Oetker Madagascan Vanilla Extract (2-3 drops)
 about 30 ml	Milk or warm water (2 tbsp)
-60 g	Strawberry Jam (4 tbsp)
+60 g	chocolate(4 tbsp)
 
-Preparation
+## Preparation
 
 1
-Victoria Sponge Cake
+# Victoria Sponge Cake
 Pre-heat oven to 180ºC/350ºF/Gas Mark 4. Grease and line two 20cm (8 inch) sandwich tins.
 
 2
@@ -39,3 +39,6 @@ Spread the jam on one of the cakes and use the butter Icing to sandwich the two 
 
 8
 Dust the top of the cake lightly with the sieved icing sugar.
+
+
+# EAT A DELICIOUS CAKE
