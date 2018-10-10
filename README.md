@@ -19,7 +19,7 @@ For the Icing:
 ### Preparation
 
 1
-Victoria Sponge Cake
+# Victoria Sponge Cake
 Pre-heat oven to 180ºC/350ºF/Gas Mark 4. Grease and line two 20cm (8 inch) sandwich tins.
 
 2
@@ -42,3 +42,6 @@ Spread the jam on one of the cakes and use the butter Icing to sandwich the two 
 
 8
 Dust the top of the cake lightly with the sieved icing sugar.
+
+
+# EAT A DELICIOUS CAKE
